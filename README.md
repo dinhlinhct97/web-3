@@ -9,3 +9,27 @@ fgn gfn gh gh nmghmn ghnm hg
   ghn ghn hjmjk 
   gh hj hjm hjm hjmhj
   
+ac as casc
+as
+c a
+sc 
+asc
+asc
+asc
+c
+s
+as
+acs
+as
+acs
+
+acs
+acs
+asc
+c
+
+a c
+as
+c ascas
+c asc
+asc
